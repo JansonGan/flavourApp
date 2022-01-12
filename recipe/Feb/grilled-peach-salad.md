@@ -1,26 +1,20 @@
-# Grilled Peach Salad
+# Asparagus with Cranberries and Pine Nuts
 
-This salad is great for the summer months. It's a light lunch or great salad to accompany a BBQ. The combination of sweet grilled peaches, toasted pecans, soft salty blue cheese with honey and thyme balsamic dressing looks impressive enough to appear on any restaurant menu... yet takes just moments to make.
+This is a quick, easy way to saute asparagus. The dish has a light flavor and makes a great accompaniment to Italian meals. I make this year-round, but we especially enjoy it on Thanksgiving.
 
-Source: https://sortedfood.com/recipe/1135
+Source: https://www.allrecipes.com/recipe/174361/asparagus-with-cranberries-and-pine-nuts/
 
 ## Ingredients
 
-- 2 fresh ripe peaches
-- 1 handful rocket
-- 1 handful red chard
-- 1 chunk blue cheese
-- 1 handful walnuts
-- 2 tbsp honey
-- 2 tbsp balsamic vinegar
-- 4 tbsp olive oil
-- 1 pinch dried thyme
-- 1 granary loaf
+- 1 bunch asparagus
+- 3 tablespoons olive oil
+- ⅓ cup pine nuts
+- ⅓ cup dried cranberries
+- 1 pinch salt
+
 
 ## Instructions
 
-1. Heat a cast iron griddle pan or BBQ as hot as it will go. de-stone and quarter the peaches.
-2. Season the peaches with salt and pepper and lay then onto the griddle pan. Turn them over after a couple of minutes to start to caramelise the other side.
-3. Measure the honey, vinegar, oil and thyme into a small bowl and whisk together with a little salt and pepper.
-4. Wash, drain and mix the salad leaves together and drop them onto a serving plate from a little height so they find there own space.
-5. Arrange the grilled peaches onto the leaves, crumble over the blue cheese and scatter the walnuts. Drizzle the dressing over the salad and serve immediately. Serves 2
+1. Break off or trim the woody ends from the asparagus and discard. Set the spears aside.
+2. Heat the olive oil in a skillet over medium heat. Stir in the pine nuts, cranberries, and salt. Cook and stir until the pine nuts start to look translucent, 5 to 6 minutes. Add the asparagus spears and cook, adding a little more olive oil if needed, until stalks are bright green and tender, about 5 to 8 minutes. Serve on a platter with the cranberries and nuts spooned over the top of the asparagus.
+
